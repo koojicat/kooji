@@ -1,0 +1,2 @@
+# kooji
+main account
